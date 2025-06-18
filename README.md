@@ -1,6 +1,7 @@
 # Jeesun (Ellie) Jung  
 📞 +1-510-847-0797  
 📧 nicejeesun@gmail.com  
+https://veryniceelliejung.github.io/work/
 
 ---
 
